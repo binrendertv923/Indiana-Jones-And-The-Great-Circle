@@ -223,4 +223,4 @@ Indiana Jones and the Great Circle is available as a full free version for Windo
 Get ready to embark on the adventure of a lifetime! Download Indiana Jones and the Great Circle now and experience the thrill of exploration and action. Don't miss out on this epic journey!
 
 ---
-**Last updated:** 2026-10-16 22:31:05 UTC
+**Last updated:** 2026-10-17 01:02:48 UTC
